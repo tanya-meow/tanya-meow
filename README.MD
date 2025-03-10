@@ -11,10 +11,10 @@
 ![](https://www.kindpng.com/picc/m/295-2957184_sushi-pixel-food-cute-tumblr-png-yellow-red.png)
 
 
-ツ 𝕀 𝕒𝕝𝕤𝕠 𝕕𝕒𝕟𝕔𝕖 ツ
+𒆎ツ 𝕀 𝕒𝕝𝕤𝕠 𝕕𝕒𝕟𝕔𝕖 ツ𒆎
 
 ![](https://st5.depositphotos.com/70185640/74445/i/450/depositphotos_744455694-stock-photo-pixel-character-girl-pose-dancing.jpg)
 
-𝕒𝕟𝕕 𝕀 𝕨𝕠𝕣𝕜 𝕒𝕤 𝕒 𝕕𝕒𝕟𝕔𝕖 𝕥𝕣𝕒𝕚𝕟𝕖𝕣𒆎
+𒆎𝕒𝕟𝕕 𝕀 𝕨𝕠𝕣𝕜 𝕒𝕤 𝕒 𝕕𝕒𝕟𝕔𝕖 𝕥𝕣𝕒𝕚𝕟𝕖𝕣𒆎
 
 𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙
