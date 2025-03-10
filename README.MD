@@ -8,6 +8,6 @@
 ...
 
 
-![](https://e1.pngegg.com/pngimages/280/942/png-clipart-food-food-pixel-art.png)
+![](https://www.kindpng.com/picc/m/295-2957184_sushi-pixel-food-cute-tumblr-png-yellow-red.png)
 
 𒈙𒈙𒈙𒈙𒈙𒈙
