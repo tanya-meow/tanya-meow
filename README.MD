@@ -4,11 +4,11 @@
 
 𝕒𝕟𝕕
 
-𒈝𓀔 𝕀 𝕝𝕚𝕜𝕖 𝕥𝕠 𝕤𝕝𝕖𝕖𝕡 𓀔𒈝
+ 𒈝𓀔 𝕀 𝕝𝕚𝕜𝕖 𝕥𝕠 𝕤𝕝𝕖𝕖𝕡 𓀔𒈝
 
 𝕒𝕟𝕕
 
-𒈝⛶ 𝕖𝕒𝕥 ⛶𒈝
+ 𒈝⛶ 𝕖𝕒𝕥 ⛶𒈝
 
 (https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pngegg.com%2Fru%2Fpng-fgcou&psig=AOvVaw0SfDaOavZJ4jYCK7wZB7-X&ust=1741686467202000&source=images&cd=vfe&opi=89978449&ved=0CBYQjRxqFwoTCMC2-t2d_4sDFQAAAAAdAAAAABAJ)
 
