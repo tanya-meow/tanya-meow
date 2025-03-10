@@ -3,7 +3,8 @@
 ✩ 𝕀'𝕞 𝕤𝕥𝕦𝕕𝕪𝕚𝕟𝕘 𝕥𝕠 𝕓𝕖 𝕒 𝕡𝕣𝕠𝕘𝕣𝕒𝕞𝕞𝕖𝕣 ✩
 𝕒𝕟𝕕
 𒈝𓀔 𝕀 𝕝𝕚𝕜𝕖 𝕥𝕠 𝕤𝕝𝕖𝕖𝕡 𓀔𒈝
-𝕒𝕟𝕕..
+𝕒𝕟𝕕
+...
 
 ![](https://e1.pngegg.com/pngimages/280/942/png-clipart-food-food-pixel-art.png)
 
