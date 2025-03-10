@@ -20,4 +20,6 @@
 
 𒆎𝕒𝕟𝕕 𝕀 𝕨𝕠𝕣𝕜 𝕒𝕤 𝕒 𝕕𝕒𝕟𝕔𝕖 𝕥𝕣𝕒𝕚𝕟𝕖𝕣𒆎
 
+![](https://st2.depositphotos.com/4184751/6089/v/450/depositphotos_60892617-stock-illustration-dancing-pixel-people-set.jpg)
+
 𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙𒈙
